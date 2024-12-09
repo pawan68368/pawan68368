@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<Pawan>-
+<Pawan>-..
 **pawan68368/Pawan Raj Yadav** is a ✨ _special_ ✨ repository because its `pawan68368` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 Hello........,.....?
 🤗 Pawan Kumar Yadav you have received the message kargne khane you are bhai please find attached a WEBSITE CONTAINS TEXT PICTURES 😁 you have received your email address 💕 🙏 you have received s
 
-
+Pawan Kumar Yadav ka kar raha tha ki kuch bolo n Ki bura Nahi manegi I'll
 
 
 
